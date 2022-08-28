@@ -2,7 +2,7 @@
 
 
 
-Here are some ideas to get you started:
+Here are some ideas about Cece:
 
 - 📫 How to reach me: ... jieshi1018@gmail.com
 - 😄 Pronouns: ... Cece/She
